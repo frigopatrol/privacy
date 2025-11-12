@@ -1,0 +1,2 @@
+# privacy
+FrigoPatrol Privacy Policy
